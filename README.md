@@ -1,1 +1,1 @@
-# AduleBasilAondoaver-
+I am Basil Aondoaver Adule, a graduate of accounting accountancy from the prestigious Benue State University. Am a writer, a public speaker,a media activist and a data analyst. I come from a humble background and from Benue State. I love to engage in profitable business and work for companies to help them analyze their data and give recommendations.
